@@ -1,4 +1,4 @@
-[➡️ Fale com a Valkhan Tech](https://valkhan.com.br) | WhatsApp: [Clique aqui](https://wa.me/5511965572558?text=Gostaria%20de%20fazer%20meu%20site%20de%20Cl%C3%ADnica%20de%20Massagens%20com%20a%20Valkhan%20Tech.)
+[➡️ Fale com a Valkhan Tech](https://valkhan.com.br) | WhatsApp: [Clique aqui](https://wa.me/5511965572558?text=Gostaria%20de%20fazer%20um%20site%20para%20meu%20Bar%20com%20a%20Valkhan%20Tech.)
 
 # Nightfall Bar - Modelo de Site para Bares
 
@@ -33,7 +33,7 @@ Este projeto é um modelo de site moderno e responsivo desenvolvido especialment
 
 Entre em contato e leve seu negócio para o próximo nível:
 
-[➡️ Fale com a Valkhan Tech](https://valkhan.com.br) | WhatsApp: [Clique aqui](https://wa.me/5511965572558?text=Gostaria%20de%20fazer%20meu%20site%20de%20Cl%C3%ADnica%20de%20Massagens%20com%20a%20Valkhan%20Tech.)
+[➡️ Fale com a Valkhan Tech](https://valkhan.com.br) | WhatsApp: [Clique aqui](https://wa.me/5511965572558?text=Gostaria%20de%20fazer%20um%20site%20para%20meu%20Bar%20com%20a%20Valkhan%20Tech.)
 
 ---
 
